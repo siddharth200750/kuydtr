@@ -1,15 +1,5 @@
-DIRECTIONS:
+Step 1
+In a large bowl, sift together the flour, baking powder, salt and sugar. Make a well in the center and pour in the milk, egg and melted butter; mix until smooth.
 
-
-Make sauce: 
-
-In a medium bowl, whisk together soy sauce, rice vinegar, oil, honey, garlic, ginger, and cornstarch.
-
-
-Make chicken: 
-
-In a large skillet over medium heat, heat oil. Add chicken to skillet and season with salt and pepper. Cook until golden and almost cooked through, about 10 minutes.
-
-Pour sauce over chicken and simmer until sauce has thickened slightly and chicken is cooked through, 5 minutes. 
-
-Garnish with sesame seeds and green onions. Serve over rice with steamed broccoli.
+Step 2
+Heat a lightly oiled griddle or frying pan over medium-high heat. Pour or scoop the batter onto the griddle, using approximately 1/4 cup for each pancake. Brown on both sides and serve hot.
